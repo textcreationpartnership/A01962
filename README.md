@@ -33,11 +33,11 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Here begynneth a lytle boke named the Schole house of women wherin euery man may rede a goodly prays
+
 #####Body#####
-Here begynneth a lytle boke named the Schole house of women wherin euery man may rede a goodly prays
+THe prouerbe olde, who so denyethIs my conceyte, doth greatly arreBoth wyt & discrecyō yl he applye
 #####Back#####
-Here begynneth a lytle boke named the Schole house of women wherin euery man may rede a goodly prays
+❧ Go forth lytell booke, be not afraydeTo be accepte, with them that are wyseAnd shewe them playne, ¶ Prynted at London in Paules Charthe yearde / at the sygne of the maydens heed, by Thomas Petyt. M.
 **Types of content**
 
   * There are 1028 **verse** lines!
